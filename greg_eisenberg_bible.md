@@ -1,6 +1,6 @@
 # Bible Greg Eisenberg — Startup Ideas Podcast
 
-Derniere mise a jour : 17/07/2026 08:00 | 66 episodes
+Derniere mise a jour : 18/07/2026 08:00 | 66 episodes
 
 ---
 
